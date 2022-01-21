@@ -13,12 +13,12 @@ Here are some ideas to get you started:
 
 -->
 
-- 🔭 I’m currently working on ... wouldn’t you like to know, huh? You and me both, friend (still evaluating various designs)
 - 🌱 I’m currently learning Concept Art at TheSign Academy
+- 🔭 I’m currently working on ... wouldn’t you like to know, huh? You and me both, friend (still evaluating different game designs)
 - 😄 Pronouns: they/them, lei in ita
 
-- 📫 You can find me on:
-instagram @lilikoidraws
-twitter @ohlilikoi
+- 📫 You can find me on:<br>
+instagram @lilikoidraws<br>
+twitter @ohlilikoi<br>
 discord lilikoi#9630
 
