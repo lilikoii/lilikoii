@@ -18,7 +18,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: they/them, lei in ita
 
 - 📫 You can find me on:<br>
-instagram @lilikoidraws<br>
-twitter @ohlilikoi<br>
+instagram @ilasc_<br>
 discord lilikoi#9630
 
